@@ -1,4 +1,4 @@
-# gloriacaroolina
+# gloriacarooline
 
 oi meu nome é glória 🦋
 
