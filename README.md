@@ -6,7 +6,7 @@ tenho 15 anos
 
 meu aniversário é 15 de maio 👯
 
-tenho 3 cadela : zuzu, estrela e lua 
+tenho 3 cadela : zuzu, estrela e lua e uma com o nm pupi q sumiu
 
 amo ano novo 🎊
 
